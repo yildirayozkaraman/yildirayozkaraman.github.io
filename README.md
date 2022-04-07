@@ -1,1 +1,0 @@
-# yildirayozkaraman.github.io
